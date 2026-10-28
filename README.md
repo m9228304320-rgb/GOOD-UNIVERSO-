@@ -1,7 +1,6 @@
 World-Earth-Agente personal.
-By: GOOD-UNIVERSO 
-Fracc.Rancho Alegre.c.p27430
-(+52) 8717090165
+By: GOOD-UNIVERSO cp27430
+(+52) 
 03/Agosto/2026.
 
 
